@@ -1,0 +1,1 @@
+First Project about Global Terrorism Statistic
